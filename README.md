@@ -1,0 +1,1 @@
+# Japan-self-trip-2026-09
